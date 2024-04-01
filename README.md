@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Gaurav 
+- 👀 I’m interested in Programing 
+- 🌱 I’m currently learning Bots
+- 💞️ I’m only love to my akane 
+- 📫 How to reach me Search on telegram,snapchat,insta @ANIME_TIMETV
+- ⚡ Fun fact: No ladki baazi loyal for Akane 
